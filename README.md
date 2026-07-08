@@ -1,2 +1,2 @@
 ## wipp
-<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/64a6b4c3-53b0-4599-b1fa-5356a65542e0" />
+<img width="961" height="612" alt="image" src="https://github.com/user-attachments/assets/e405799d-b3ae-492f-8029-b9ce9979eec8" />
