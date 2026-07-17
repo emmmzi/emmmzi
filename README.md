@@ -1,6 +1,6 @@
 <div align="center">
 
-⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒ 𝄢
+⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒ 
 
 
 [**strawpage**](https://mochimochiii.straw.page/)      🐺      [**ata**](https://emmziikiwii.atabook.org/)
