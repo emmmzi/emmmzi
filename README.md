@@ -1,5 +1,4 @@
 <div align="center">
-DNI BEN BROWN = JADE GRGRRR /nsrs
 
   ⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒ 
 
