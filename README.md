@@ -1,9 +1,5 @@
 <div align="center">
-BEN DROWN + JADE + REIJI DNDNNNNIIIII
- 
-
-  
-  ⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒ 
+ ⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒⌒ ⌒ ⌒ ⌒ 
 
 
 [**strawpage**](https://mochimochiii.straw.page/)      🐺      [**ata**](https://emmziikiwii.atabook.org/)
